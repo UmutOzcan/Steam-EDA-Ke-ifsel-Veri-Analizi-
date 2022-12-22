@@ -1,1 +1,1 @@
-# Steam-EDA-Ke-ifsel-Veri-Analizi-
+# Steam-EDA-Kesifsel-Veri-Analizi-
